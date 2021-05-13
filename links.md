@@ -1,0 +1,1 @@
+https://commarketru.com/mikrokontrollery-proshloe-i-nastoyashhee/
